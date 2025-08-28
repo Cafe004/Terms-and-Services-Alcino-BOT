@@ -57,4 +57,4 @@ Usuários que tentarem burlar limites ou abusar do bot podem ter seu acesso nega
 8. Contato
 
 Para dúvidas sobre estes Termos de Uso ou sobre o bot, entre em contato pelo e-mail:
-suporte@seudominio.com
+harley110109@gmail.com
